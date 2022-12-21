@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on this platform
 - 📫 How to reach me on github,linkedin and through gmail
 - Gmail:prachinnayak07@gmail.com
+- Instagram : https://www.instagram.com/prachin_nayak07/
 - linkedin:Prachin Nayak
 
 <!---
