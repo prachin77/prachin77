@@ -5,6 +5,7 @@
 - 📫 How to reach me on github,linkedin and through gmail
 - Gmail:prachinnayak07@gmail.com
 - Instagram : https://www.instagram.com/prachin_nayak07/
+- Linkedin : https://www.linkedin.com/in/prachin-nayak-635962256/
 - linkedin:Prachin Nayak
 
 <!---
